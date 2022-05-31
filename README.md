@@ -31,3 +31,9 @@ http://www.aigow.xyz/tags/wzdj
 http://www.aigow.xyz/tags/bt
 http://www.aigow.xyz/tags/docker
 http://www.aigow.xyz/tags/wordpress
+http://www.aigow.xyz/archives/seo-gj-3
+http://www.aigow.xyz/archives/halo-hz-1
+http://www.aigow.xyz/archives/seo-yh-1
+http://www.aigow.xyz/archives/seo-jc-1
+http://www.aigow.xyz/archives/seo-jc-2
+http://www.aigow.xyz/archives/seo-jc-3
