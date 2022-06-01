@@ -49,3 +49,6 @@ https://evopgi.blogspot.com/2022/05/wordpress-dj-4.html
 https://evopgi.blogspot.com/2022/05/wordpress-dj-3.html 
 https://evopgi.blogspot.com/2022/05/wordpress-dj-1.html 
 https://evopgi.blogspot.com/2022/05/wordpress-dj-2.html 
+https://evopgi.blogspot.com/2022/06/seo-1.html
+https://evopgi.blogspot.com/2022/06/seo.html
+
