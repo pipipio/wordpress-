@@ -37,3 +37,15 @@ https://aigow.xyz/archives/seo-yh-1
 https://aigow.xyz/archives/seo-jc-1
 https://aigow.xyz/archives/seo-jc-2
 https://aigow.xyz/archives/seo-jc-3https
+https://evopgi.blogspot.com/2022/05/seo-gj-01.html
+https://evopgi.blogspot.com/2022/05/wordpress-jj-4.html 
+https://evopgi.blogspot.com/2022/05/wordpress-jj-3.html 
+https://evopgi.blogspot.com/2022/05/wordpress-jj-2.html
+https://evopgi.blogspot.com/2022/05/wordpress-jj-1.html 
+https://evopgi.blogspot.com/2022/05/wordpress-dj-7.html 
+https://evopgi.blogspot.com/2022/05/wordpress-dj-6.html 
+https://evopgi.blogspot.com/2022/05/wordpress-dj-5.html 
+https://evopgi.blogspot.com/2022/05/wordpress-dj-4.html 
+https://evopgi.blogspot.com/2022/05/wordpress-dj-3.html 
+https://evopgi.blogspot.com/2022/05/wordpress-dj-1.html 
+https://evopgi.blogspot.com/2022/05/wordpress-dj-2.html 
